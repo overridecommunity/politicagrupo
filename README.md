@@ -3,7 +3,7 @@
 Para manter o grupo em ordem, por favor, respeitem as seguintes regras:
 
 Não alterar o nome e nem a foto do grupo.
-Não falar sobre outros assuntos que não sejam tecnologia e eventos relacionados.
+Não falar sobre outros assuntos que não sejam tecnologia e eventos relacionados. Vagas de trabalho, use: https://t.me/vagastigo
 Não divulgar outros grupos de WhatsApp.
 Em caso de piadas ofensivas, será retirado do grupo.
 
